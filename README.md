@@ -10,4 +10,4 @@ Pronomes: Ela/Dela
 
 Apelidos: Elo, Lolo
 
-
+![](https://media.tenor.com/jAFnWPK3NgoAAAAd/valorant-astra.gif)
